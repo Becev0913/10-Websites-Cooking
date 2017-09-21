@@ -19,3 +19,5 @@ https://www.pillsbury.com/ - gain some baking inspiration for those holiday fami
 https://www.mcdonalds.com/us/en-us/careers.html - Application for McDonald’s because we all have to start somewhere right?
 
 https://foodbankheartland.org/ - Heartland Food Bank because some people can't cook for themselves
+
+https://www.pinterest.com/explore/food-recipes/ Pinterest is a good place for recipes
